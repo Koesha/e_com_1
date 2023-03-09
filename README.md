@@ -1,1 +1,1 @@
-E commece Website
+E commerce Website
